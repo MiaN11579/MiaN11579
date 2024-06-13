@@ -1,1 +1,1 @@
-# Hello there! I'm Mia
+# Hello there! I'm Mia. Nice to meet you :)
